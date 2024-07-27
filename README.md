@@ -18,7 +18,7 @@ Nothing but a puss~
 ## What is within my power to accomplish?
 
 - Phigros✅
-- Genshin Impact✅
+- Genshin Impact❌
 - Linux CLI✅
 - Programming❌
 
