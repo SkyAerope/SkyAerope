@@ -11,7 +11,7 @@
 </picture>
 
 
-Nothing but a puss~
+Nothing but a cat-like creature~
 
 > Who love adorable girls and boys!🎉
 
