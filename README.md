@@ -10,7 +10,6 @@
 <img align="right" alt="My GitHub Stats" />
 </picture>
 
-
 Nothing but a cat-like creature~
 
 > Who love adorable girls and boys!🎉
